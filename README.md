@@ -35,4 +35,4 @@ JP影院 – 专注于日本AV影片，分类清晰，支持在线播放和字�
 总结：如果你正在寻找真正免费日本AV资源，建议从我们推荐的资源站点入手，结合关键词策略与社区入口，更快地获取你想要的内容。记得定期清理浏览缓存和保护个人隐私，让看片也能更安心。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/su4569/512314 ）</span>
